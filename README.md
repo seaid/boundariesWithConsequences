@@ -1,0 +1,1 @@
+*These boundaries are by no way official or recognised by the member states of IHO. However, we need a workable model. No progress is no option. We use common sense and stand by to correct when conclusions about maritime boundaries are final and agreed upon, to correct our models.*
